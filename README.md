@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Matthew K. Daniels 
-- 📫 How to reach me contacts only.
+- 📫 How to reach me contacts, emails, phone calls, and DM me on my social media.
 - Mattdan29. 
 
 <!---
