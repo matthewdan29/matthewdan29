@@ -1,5 +1,4 @@
 - 👋 Hi, I’m Matthew K. Daniels 
-- 📫 How to reach me emails or calls. 
 - Mattdan29 is my first GitHub profile. 
 
 <!---
