@@ -1,5 +1,5 @@
-- 👋 Hi, I’m Matthew K. Daniels 
-- Mattdan29 is my first GitHub profile. 
+- 👋 Hi, I’m Chief Matthew
+- I am a personal assistant, personal motivational speaker, and Personal Trainer  
 
 <!---
 matthewdan29/matthewdan29 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
