@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Chief Matthew
+- 👋 Hi, I’m Chief Matthew Daniels
 - I am a personal assistant, personal motivational speaker, and Personal Trainer  
 
 <!---
